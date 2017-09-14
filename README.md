@@ -1,4 +1,4 @@
 # Gabin Dushime
-Hi, I am from the republic democratic of the Congo. I like to play music, draw, and sing. Also I can speak four languages which are chinese, french, spanish and english oops just kidding! I speak swahili, french, english, and kinyarwanda. My favorite 
+Hi, I am from the republic democratic of the Congo, yeah that's a long name but in short it's Congo and that's in Africa. Anyway, I like to play music, draw, and sing. Also I can speak four languages which are  swahili, french, english, and kinyarwanda. I hope oneday I own a hosting tv show in four languages and Gabin's tower are all over the place selling different cultures stuff. The last thing about me is I like to talk about God and Jesus, I think today's society need to hear it more than ever. Thank you for taking your time and read this. 
 
-![GitHub Logo](https://ui.cltpstatic.com/camp/images/ai/000/873/136/873136/published/w/ktm-bike-for-rent-along-with-a-complimentary-atv-bike-1.jpg?1498628357)
+![GitHub Logo](https://drive.google.com/open?id=0B_mkZjhpT4y2eVNQdFhjWlhLQTg)
